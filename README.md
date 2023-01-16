@@ -1,4 +1,4 @@
-# OfertaEmpr-stimo-RouboSN
+
 
 ![](RackMultipart20230116-1-5limu2_html_1aba8716852f1e6e.png)Aqui sua gambiarra se torna realidade.
 
